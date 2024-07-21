@@ -104,11 +104,11 @@ Heart:
 
 Meet new and interesting dogs nearby.
 
-Easy to use.< br / >
-So easy to use, even your dog could do it.< br / >
+Easy to use.< br />
+So easy to use, even your dog could do it.< br />
 
-Elite Clientele.< br / >
-We have all the dogs, the greatest dogs.< br / >
+Elite Clientele.< br />
+We have all the dogs, the greatest dogs.< br />
 
 Guaranteed to work.
 Find the love of your dog's life or your money back.
